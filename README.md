@@ -1,5 +1,5 @@
 <meta name="google-site-verification" content="BZVPghyPH-bl9rxtJsoM2J832OR6-GINs-ln2cy8fJ0" />
-## Hi there 👋 I'm [Qiqiao]
+## Hi 👋 I'm [Qiqiao]
 
 ### 🎓 Education & Communication Professional | 📊 Data Enthusiast
 
